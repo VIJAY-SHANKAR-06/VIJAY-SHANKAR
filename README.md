@@ -48,7 +48,7 @@ Here are some of my projects:
 
 ## 📫 Connect With Me
 
-* 📧 Email: [your-email@example.com](mailto:your-email@example.com)
+* 📧 Email: [vijayshankarbs1234@gmail.com](mailto:vijayshankarbs1234@gmail.com)
 * 💼 LinkedIn: Add your link
 * 🌐 Portfolio: Add your website
 
